@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Edin15
+- 👀 I’m interested in Marketing and Investing
+- 🌱 I’m currently learning IT High School
+- 📫 How to reach me : Instagram: edin_12
